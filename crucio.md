@@ -1,2 +1,2 @@
 # Title
-I watched harry potter
+I watched Harry Potter and half-blood prince
